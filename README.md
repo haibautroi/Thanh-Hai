@@ -1,1 +1,1 @@
-# Thanh-Hai
+Không ăn cắp code 
